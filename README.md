@@ -10,9 +10,9 @@ What Separates CCPD
 
 We believe a truly exceptional protection dog starts with genetics. Our development philosophy is built around three essential elements:
 
-3. Genetics: Strong genetic nerve, temperament, confidence, and natural working ability.
-5. Environment: Early exposure, socialization, and development in real-world environments.
-7. Training: Structured obedience, environmental conditioning, and advanced protection training.
+1. Genetics: Strong genetic nerve, temperament, confidence, and natural working ability.
+2. Environment: Early exposure, socialization, and development in real-world environments.
+3. Training: Structured obedience, environmental conditioning, and advanced protection training.
 
 We begin developing our puppies at five weeks of age. Our dogs are raised in home environments rather than traditional kennel environments, allowing us to develop confident, socially stable dogs from an early age.
 
