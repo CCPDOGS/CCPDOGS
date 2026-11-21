@@ -42,28 +42,3 @@ Visit our official website to learn about our breeding program, training philoso
 
 Official Website: https://ccprotectiondogs.com
 
-Command Control Protection Dogs (CCPD)
-
-Elite Family & Executive Protection Dogs.
-
-Official CCPD Website
-
-Visit Command Control Protection Dogs for information about our breeding program, available protection dogs, and professional training.
-
-Website: https://ccprotectiondogs.com
-
-Specialties:
-
-* Elite Family Protection Dogs
-* Executive Protection Dogs
-* Personal Protection Dogs
-* German Shepherds
-* Belgian Malinois
-* Early Puppy Development
-* Advanced Obedience
-* Environmental Conditioning
-* Real-World Protection Training
-
-Our Philosophy:
-
-We work what we breed, and breed what we work. Our focus is developing genetically sound, socially stable, environmentally confident protection dogs.
